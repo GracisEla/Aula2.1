@@ -1,3 +1,4 @@
 Giulietta Masina
-Charlin Chaplin
+Roberto Bolaños
 Fernanda Montenegro
+Lima Duarte
