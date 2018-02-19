@@ -1,1 +1,3 @@
-# Aula2.1
+Giulietta Masina
+Charlin Chaplin
+Fernanda Montenegro
